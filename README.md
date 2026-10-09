@@ -1,1 +1,1 @@
-# SEISMODEX.githib.io
+# SeismoDex.githib.io
