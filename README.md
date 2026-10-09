@@ -1,1 +1,1 @@
-# nmahandru1506.githib.io
+# SEISMODEX.githib.io
